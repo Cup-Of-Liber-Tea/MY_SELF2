@@ -1,4 +1,0 @@
-asdf
-asdfasdf
-asdfasdfdf
-ㅅㅄㅂ
